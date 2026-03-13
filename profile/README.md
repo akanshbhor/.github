@@ -1,4 +1,4 @@
-# Akansh
+# Akansh Bhor
 
 **Founder & Lead Architect | Ctrl Studio**
 
